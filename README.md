@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on Web3 projects
 - 📫 How to reach me dsims6507ATGMAIL
 - 😄 Pronouns: ...
-- ⚡ Fun fact: ...
+- ⚡ Fun fact: I want to be reach
 
 <!---
 Dsims6/Dsims6 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
