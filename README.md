@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Dsims6
 - 👀 I’m interested in Crypto
-- 🌱 I’m currently learning Bitcoin
+- 🌱 I’m currently learning about Bitcoin
 - 💞️ I’m looking to collaborate on Web3 projects
 - 📫 How to reach me dsims6507ATGMAIL
 - 😄 Pronouns: ...
